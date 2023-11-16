@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Wrldsavage
-- 👀 I’m interested in anything you Cryptocurrency 
+- 👀 I’m interested in anything about Cryptocurrency 
 - 🌱 I’m about to learn Coding
 - 💞️ I’m looking to collaborate on crypto and coding 
 - 📫 How to reach me @ here is my Facebook profile link 🔗 
